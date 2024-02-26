@@ -1,1 +1,0 @@
-# Bsis_2-A_Activities
